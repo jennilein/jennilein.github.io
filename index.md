@@ -16,3 +16,12 @@ Des Weiteren auch einen Wegweiser zu seinen Gedenkstätten und Museen in Wiedens
 * Streich 5: Käfer für Onkel Fritz
 * Streich 6: Zwei merkwürdige Brote
 * Streich 7: Endstation Mühle
+https://www.wilhelm-busch.de/werke/max-und-moritz/alle-streiche/
+
+> Aber wehe wehe, wenn ich auf das Ende sehe
+
+https://www.youtube.com/watch?v=e8_-l9k3Ftw
+
+
+
+
