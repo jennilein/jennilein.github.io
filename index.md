@@ -5,7 +5,7 @@ Neben Max und Moritz, Hans Huckebein der Unglücksrabe, Die fromme Helene
 finden Sie einige Gedichte und Geschichten und auch über seinen Lebenslauf 
 die Werke "Von mir über mich" und "Was mich betrifft". 
 Des Weiteren auch einen Wegweiser zu seinen Gedenkstätten und Museen in Wiedensahl oder Hannover.
-(Wikipedia)
+https://de.wikipedia.org/wiki/Wilhelm_Busch
 
 ## Max und Moritz 7 Streiche
 
